@@ -4,6 +4,6 @@
 - 💞️ I’m looking to collaborate on nothing.
 - 📫 How to reach me. you can't
 - 😄 Pronouns: he/him
-- ⚡ Fun fact: mas6y6 is a horrible person
+- ⚡ Fun fact: fun facts are not fun
 
 bye..
